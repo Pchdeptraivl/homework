@@ -1,4 +1,5 @@
 # homework
+questions page 13-23:
 1. The difference between the rich dad and the poor dad is that the rich dad has a very successful study when and the other father just never finished eight grade.The other difference is life style and point of view about money
 2. Both men were strong, charismatic, and influential. Both men offered me advice, but they did not advise the same things. Both men believed strongly in education but did not recommend the same course of study.
 3. I think the poor dad is the author's biological father.
@@ -10,4 +11,10 @@
 10. One dad thought that the rich should pay more in taxes to take care of those less fortunate. The other said, “Taxes punish those who produce and reward those who don’t produce.” The poor dad like the taxes because it helps the poor people like him have a better life. The other think that the taxes is useless for him and it just good for the people who lazy and never hardworking
 11. Because he know that the house is the safest zone and only if you take out of that zone you may have better oppotunity. And if you always stay in safe, you will never get success.
 12. Bacause the rich dad have better mindset and life than the poor dad.
-13. 
+13. After grade 6, the author attend the public intermediate and high school.
+13. Because they are the two only poor kids in their school.
+questions page 23-28:
+1. She feel angry,annoyed and confuse about it. Reference : Finally my mom put her foot down. The sight of her neighbors’ messy, crumpled, used toothpaste tubes had gotten to her. “What are you boys doing?” she asked. “And I don’t want to hear again that it’s a business secret. Do something with this mess, or I’m going to throw it out.”
+2. The poor father.
+3. Very proud of his son.
+4. He feel a little funny but also quite proud.
