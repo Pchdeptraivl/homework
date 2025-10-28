@@ -18,3 +18,5 @@ questions page 23-28:
 2. The poor father.
 3. Very proud of his son.
 4. He feel a little funny but also quite proud.
+5. Yes, they are quite often frequent Mike's house. Reference : “Does this go on all the time?” I asked. “Not always, but quite often,” said Mike, smiling as he pulled up a chair to sit down next to me.
+6. When the author visited Mike's house, he felt claustrophobic as he entered the narrow living room that was filled with old musty overstuffed furniture that today would be collectors’ items.
