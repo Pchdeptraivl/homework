@@ -26,4 +26,4 @@ Question 16-20
 3. He feel dissatisfied. Reference: By Wednesday of the fourth week, I was ready to quit. I had agreed to work only because I wanted to learn to make money from Mike’s dad, and now I was a slave for 10 cents an hour.
 4. It change from think Mike's dad is a greedy,deceitful,cheap and exploit to think he's right and profound.
 5. Some people give up and others fight. A few learn the lesson and move on. They welcome life pushing them around.Most quit, and a few fight.
-6. The fear ò losing
+6. The fear of losing
