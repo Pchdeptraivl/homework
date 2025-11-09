@@ -20,3 +20,10 @@ questions page 23-28:
 4. He feel a little funny but also quite proud.
 5. Yes, they are quite often frequent Mike's house. Reference : “Does this go on all the time?” I asked. “Not always, but quite often,” said Mike, smiling as he pulled up a chair to sit down next to me.
 6. When the author visited Mike's house, he felt claustrophobic as he entered the narrow living room that was filled with old musty overstuffed furniture that today would be collectors’ items.
+Question 16-20
+1. It's learn the lesson and move on when life pushes you around.
+2. He feel excruciatingly boring. Reference: It was excruciatingly boring work.
+3. He feel dissatisfied. Reference: By Wednesday of the fourth week, I was ready to quit. I had agreed to work only because I wanted to learn to make money from Mike’s dad, and now I was a slave for 10 cents an hour.
+4. It change from think Mike's dad is a greedy,deceitful,cheap and exploit to think he's right and profound.
+5. Some people give up and others fight. A few learn the lesson and move on. They welcome life pushing them around.Most quit, and a few fight.
+6. The fear ò losing
