@@ -27,3 +27,10 @@ Question 16-20
 4. It change from think Mike's dad is a greedy,deceitful,cheap and exploit to think he's right and profound.
 5. Some people give up and others fight. A few learn the lesson and move on. They welcome life pushing them around.Most quit, and a few fight.
 6. The fear of losing
+Question 21-25
+1. It mean he talk so much, again and again but the boys can't understand.
+2. He paid the boys 10 cents an hour of working.
+3. Yes,it is. Reference: Fear keeps most people working at a job: the fear of not paying their bills, the fear of being fired, the fear of not having enough money, and the fear of starting over.
+4. Because of the fear.
+5. Choice question.
+6. 
