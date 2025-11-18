@@ -33,4 +33,13 @@ Question 21-25
 3. Yes,it is. Reference: Fear keeps most people working at a job: the fear of not paying their bills, the fear of being fired, the fear of not having enough money, and the fear of starting over.
 4. Because of the fear.
 5. Choice question.
-6. 
+Question 26-30
+1. Because the author thinks that the rich dad was making fun of these good hard-working people. (42)
+2. Yes,he was. Reference: He thought: "I wanted to say yes. I wanted the deal." (42)
+3. Two boys were sudenly tempted but it was quickly disappeared then they calmed down. (43)
+4. Not lying is don't tell anything that not true. Telling the truth is tell yourself what is your true felling. (44)
+5. No,they couldn't. Evidence: Mike and I heard what he said but didn’t understand fully what he was talking about. (45)
+Questiong 31-36
+1. The fear make people stuck in the trap of working, earning money, working, earning money, hoping the fear will go away. And the desire make them spend the money on the short-lived joy and they soon need more money for more for more joy, more pleasure, more comfort, and more security. (44-45)
+2. No,it doesn't. Because they strugle with the bill everyday and they always go to work because of fear. Reference: The avoidance of money is just as psychotic as being attached to money. (46)
+3. 
