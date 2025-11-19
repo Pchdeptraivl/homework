@@ -42,4 +42,6 @@ Question 26-30
 Questiong 31-36
 1. The fear make people stuck in the trap of working, earning money, working, earning money, hoping the fear will go away. And the desire make them spend the money on the short-lived joy and they soon need more money for more for more joy, more pleasure, more comfort, and more security. (44-45)
 2. No,it doesn't. Because they strugle with the bill everyday and they always go to work because of fear. Reference: The avoidance of money is just as psychotic as being attached to money. (46)
-3. 
+3. The biggest problem is they don't actually kwow what they need to do. (47)
+4. No,he doesn't. Reference: From here on in, it’s imperative for you to use those emotions to your advantage. (49)
+6. Ignorance present itself when people fear and greed against themselve. (49)
