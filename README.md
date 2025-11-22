@@ -45,3 +45,9 @@ Questiong 31-36
 3. The biggest problem is they don't actually kwow what they need to do. (47)
 4. No,he doesn't. Reference: From here on in, it’s imperative for you to use those emotions to your advantage. (49)
 6. Ignorance present itself when people fear and greed against themselve. (49)
+RDPD - questions 36-40
+1. It just train employees to become sophisticated bean-counters.
+2. The point of view.
+3. The belives about the money is real.
+4. Because she loved study.
+5. Because it's too difficult to find someone as trustworthy and dedicated as Mike’s sister.
