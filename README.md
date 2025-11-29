@@ -39,7 +39,7 @@ Question 26-30
 3. Two boys were sudenly tempted but it was quickly disappeared then they calmed down. (43)
 4. Not lying is don't tell anything that not true. Telling the truth is tell yourself what is your true felling. (44)
 5. No,they couldn't. Evidence: Mike and I heard what he said but didn’t understand fully what he was talking about. (45)
-Questiong 31-36
+Question 31-36
 1. The fear make people stuck in the trap of working, earning money, working, earning money, hoping the fear will go away. And the desire make them spend the money on the short-lived joy and they soon need more money for more for more joy, more pleasure, more comfort, and more security. (44-45)
 2. No,it doesn't. Because they strugle with the bill everyday and they always go to work because of fear. Reference: The avoidance of money is just as psychotic as being attached to money. (46)
 3. The biggest problem is they don't actually kwow what they need to do. (47)
@@ -51,3 +51,9 @@ RDPD - questions 36-40
 3. The belives about the money is real.
 4. Because she loved study.
 5. Because it's too difficult to find someone as trustworthy and dedicated as Mike’s sister.
+Question 41-45
+1. It means that, barring unforeseen cataclysmic changes, you can work or not work, and your wealth grows automatically, staying ahead of inflation.(57)
+2. It will be many booms and buts. Reference:  I suspect there will be many booms and busts in the coming years that will parallel the ups and downs these men faced.(end 56)
+3. He means that most people in their drive to get rich, they're so hurry that they don't kwow that they don't have the ability to do some work and all the things that they built may be destroyed.(60)
+4. You should make it simple by teaching it in pictures. Because when you use the picture, it's easy for children to understand the simple drawings, the jargon, then you can teach some more difficult thing and the children still understand what you teach.(end 60)
+5. Becaues they were taught by other educated professionals. They can't forget thier wrong kwoledge.An intelligent adult often feels it is demeaning to pay attention to simplistic definitions.(62)
