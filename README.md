@@ -57,3 +57,10 @@ Question 41-45
 3. He means that most people in their drive to get rich, they're so hurry that they don't kwow that they don't have the ability to do some work and all the things that they built may be destroyed.(60)
 4. You should make it simple by teaching it in pictures. Because when you use the picture, it's easy for children to understand the simple drawings, the jargon, then you can teach some more difficult thing and the children still understand what you teach.(end 60)
 5. Becaues they were taught by other educated professionals. They can't forget thier wrong kwoledge.An intelligent adult often feels it is demeaning to pay attention to simplistic definitions.(62)
+Questions 46-55
+1. No,they shouldn't. Because for the average person, it makes no sense.(63)
+2. The difference is what they are acquiring.
+3. Because Money often makes obvious our tragic human flaws, putting a spotlight on what we don’t know. (68)
+4. He meant it as a negative development because it is so hard to motivate kids in school today.
+5. Because people are now trapped in the Rat Race.
+6. 
