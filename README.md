@@ -64,3 +64,15 @@ Questions 46-55
 4. He meant it as a negative development because it is so hard to motivate kids in school today.
 5. Because people are now trapped in the Rat Race.
 6. 
+RDPD - questions 56-65
+1. He mean that people don't know that leaving for work every morning will make money control them.(73)
+2. He is a man who had not gone along with the crowd. He was a man who did his own thinking and detested the words, “We have to do it this way because that’s the way everyone else does it.” He also hated the word “can’t.”(75)
+3. No, he didn't. Reference: A not-too-pleasant argument took place when I showed him why I thought a house was not a good investment.(76)
+4. He mean that for someone, a house is just a vehicle to borrow money.(79)
+5. There are loss of time, loss of additional capital, loss of education. (79)
+6. No,it isn't. Because increased spending throws families into greater debt and into more financial uncertainty. (82)
+RDPD - questions 66-75
+1. The problem is it make the lack of early financial education.(83)
+2. It's the difference between your assets and liabilities, which is often filled with a person’s expensive junk and opinions of what things are worth.(end 85-86)
+3. Because , the person who bought the franchise was also buying the real estate under the franchise for Ray Kroc’s organization.(89)
+4. 
