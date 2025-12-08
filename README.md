@@ -75,4 +75,7 @@ RDPD - questions 66-75
 1. The problem is it make the lack of early financial education.(83)
 2. It's the difference between your assets and liabilities, which is often filled with a person’s expensive junk and opinions of what things are worth.(end 85-86)
 3. Because , the person who bought the franchise was also buying the real estate under the franchise for Ray Kroc’s organization.(89)
-4. 
+RDPD - questions 76-85
+1. Yes, he is.(93)
+2. No, he isn't (As your cash flow grows, you can indulge in some luxuries.95)
+3. 
