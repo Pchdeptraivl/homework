@@ -78,4 +78,9 @@ RDPD - questions 66-75
 RDPD - questions 76-85
 1. Yes, he is.(93)
 2. No, he isn't (As your cash flow grows, you can indulge in some luxuries.95)
-3. 
+3. Because of the war(98)
+4. By telling the poor and the middle class that taxes were created only to punish the rich.(98)
+5. By gives the rich a vast advantage over the poor and the middle class(101)
+RDPD - questions 86-95
+1. He mean that the more money he made, the more that Xeros take money from him. Because when he sees his money was deducted by Xeros, he relly want out of the employees trap.(107)
+2. 
