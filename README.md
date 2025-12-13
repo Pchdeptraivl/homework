@@ -85,4 +85,12 @@ RDPD - questions 86-95
 1. He mean that the more money he made, the more that Xeros take money from him. Because when he sees his money was deducted by Xeros, he relly want out of the employees trap.(107)
 2. A corporation can do many things that an employee cannot, like pay expenses before paying (109)
 3. you can hide much of their wealth using vehicles such as corporations and trusts to protect their assets from creditors.(109)
-4. 
+4.
+5. Her lack of finalcial education and conservatory.(115)
+RDPD - question 96-105
+1. They are the people who have money, have the great opportunity but they don't know that they have the great opportunity. Reference: They have the money, the time is right, they have the card, but they can’t see the opportunity staring them in the face. They fail to see how it fits into their financial plan for escaping the Rat Race.(118)
+2. Because financial intelligence is simply having more options. It can help a person to be luckier and create money instead of working hard.(119)
+3. The problem is it blinds the person to what is really going on. It causes them to miss major opportunities for much more significant growth of their money. The world is passing them by.(121)
+4. No, because the economy is terrible at that time but this is the perfect market condition for investors.(121)
+5. Because the author can earn $2500 while the value of the house is doesn't change. (123)
+6. Because house is an asset that many people in the world want to have. Most of them don't have finalcial intelligent and the author can easily earn money on them.
