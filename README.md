@@ -93,4 +93,4 @@ RDPD - question 96-105
 3. The problem is it blinds the person to what is really going on. It causes them to miss major opportunities for much more significant growth of their money. The world is passing them by.(121)
 4. No, because the economy is terrible at that time but this is the perfect market condition for investors.(121)
 5. Because the author can earn $2500 while the value of the house is doesn't change. (123)
-6. Because house is an asset that many people in the world want to have. Most of them don't have finalcial intelligent and the author can easily earn money on them.
+6. Because house is an asset that many people in the world want to buy. Most of them don't have finalcial intelligent and the author can easily earn money on them.
