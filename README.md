@@ -83,4 +83,6 @@ RDPD - questions 76-85
 5. By gives the rich a vast advantage over the poor and the middle class(101)
 RDPD - questions 86-95
 1. He mean that the more money he made, the more that Xeros take money from him. Because when he sees his money was deducted by Xeros, he relly want out of the employees trap.(107)
-2. 
+2. A corporation can do many things that an employee cannot, like pay expenses before paying (109)
+3. you can hide much of their wealth using vehicles such as corporations and trusts to protect their assets from creditors.(109)
+4. 
