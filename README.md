@@ -94,3 +94,7 @@ RDPD - question 96-105
 4. No, because the economy is terrible at that time but this is the perfect market condition for investors.(121)
 5. Because the author can earn $2500 while the value of the house is doesn't change. (123)
 6. Because house is an asset that many people in the world want to buy. Most of them don't have finalcial intelligent and the author can easily earn money on them.
+RDPD - questions 106-115
+1. It's he always know the true value of the house.(127)
+2. It mean the people don't have much knowledge about of the game.(130).
+3. The real estate Reference : It’s stable and slow-moving(133)
