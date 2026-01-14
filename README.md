@@ -76,24 +76,34 @@ RDPD - questions 66-75
 2. It's the difference between your assets and liabilities, which is often filled with a person’s expensive junk and opinions of what things are worth.(end 85-86)
 3. Because , the person who bought the franchise was also buying the real estate under the franchise for Ray Kroc’s organization.(89)
 RDPD - questions 76-85
-1. Yes, he is.(93)
-2. No, he isn't (As your cash flow grows, you can indulge in some luxuries.95)
-3. Because of the war(98)
+1. Yes, he is. Only if you love real estate (93)
+2. No, he doesn't (As your cash flow grows, you can indulge in some luxuries.95) (only use money from the asset)
+3. Because to fund the war(98)
 4. By telling the poor and the middle class that taxes were created only to punish the rich.(98)
+  Taxed was introduced to because the goverment needed money and they need support under the "punish the rich" idea.
 5. By gives the rich a vast advantage over the poor and the middle class(101)
+   cooporate can pay taxed after expensive
 RDPD - questions 86-95
 1. He mean that the more money he made, the more that Xeros take money from him. Because when he sees his money was deducted by Xeros, he relly want out of the employees trap.(107)
+    It mean the more money he made, the more taxed he need to pay.
 2. A corporation can do many things that an employee cannot, like pay expenses before paying (109)
-3. you can hide much of their wealth using vehicles such as corporations and trusts to protect their assets from creditors.(109)
-4.
-5. Her lack of finalcial education and conservatory.(115)
+   cooperation allow the chariman to control everything but own notthing.
+4. you can hide much of their wealth using vehicles such as corporations and trusts to protect their assets from creditors.(109)
+  -) study more the benefit and protection offer by a corporations.
+  -) study to use corporations and trusts.
+6.
+7. Her lack of finalcial education and conservatory.(115)
 RDPD - question 96-105
 1. They are the people who have money, have the great opportunity but they don't know that they have the great opportunity. Reference: They have the money, the time is right, they have the card, but they can’t see the opportunity staring them in the face. They fail to see how it fits into their financial plan for escaping the Rat Race.(118)
 2. Because financial intelligence is simply having more options. It can help a person to be luckier and create money instead of working hard.(119)
-3. The problem is it blinds the person to what is really going on. It causes them to miss major opportunities for much more significant growth of their money. The world is passing them by.(121)
-4. No, because the economy is terrible at that time but this is the perfect market condition for investors.(121)
-5. Because the author can earn $2500 while the value of the house is doesn't change. (123)
-6. Because house is an asset that many people in the world want to buy. Most of them don't have finalcial intelligent and the author can easily earn money on them.
+3. The problem is it blinds the person to what is really going on (learing opportunities).It causes them to miss major opportunities (opportunity cause) for much more significant growth of their money. You make the bank richer and not yourself.(121)
+4. Yes, because the economy is terrible at that time but this is the perfect market condition for investors.(121)
+   No, because only the author have the information. But now, everyone have the same. 
+6. Because the author can earn $2500 while the value of the house didn't change. (123)
+   everyone can get rich.
+8. Because house is an asset that many people in the world want to buy. Most of them don't have finalcial intelligent and the author can easily earn money on them.
+   He want to show show to regcornized opportunity.
+   How to make money from litle capital.
 RDPD - questions 106-115
 1. It's he always know the true value of the house.(127)
 2. It mean the people don't have much knowledge about of the game.(130).
